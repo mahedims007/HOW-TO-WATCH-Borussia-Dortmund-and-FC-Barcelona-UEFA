@@ -1,6 +1,9 @@
 # HOW-TO-WATCH-Borussia-Dortmund-and-FC-Barcelona-UEFA
 
 
+
+
+
 It is already 14 April 2025, and Borussia Dortmund and FC Barcelona have already faced each other in the first leg of their UEFA Champions League Quarter Final tie. Played on 9 April 2025, at the Estadi Olímpic Lluís Companys in Barcelona, Barcelona dominated against Dortmund with a 0-4 end result. ​
 The return match is April 15, 2025, at Signal Iduna Park in Dortmund. Dortmund cannot be as subdued in their aggregate score (4-0 in the favour of Ajax) and need to cover up the goal deficit in order to be able to advance. ​
 Key events ahead of the second leg:
